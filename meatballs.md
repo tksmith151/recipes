@@ -1,0 +1,13 @@
+- 1 lb ground beef
+- 1 lb ground pork
+- 1/2 c bread crumbs
+- 1 med zucchini, grated and drained 
+- 1/2 c milk (maybe a bit more, depending on texture)
+- 2 eggs
+- 2 tsp salt
+- 1/2 tsp garlic powder
+- 1/4 tsp onion powder 
+- 1/2 tsp basil
+- 1/2 tsp oregano
+- 1/4 tsp asge 
+- 1/2 c (ish) parmesan 
