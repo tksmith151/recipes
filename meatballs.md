@@ -9,5 +9,5 @@
 - 1/4 tsp onion powder 
 - 1/2 tsp basil
 - 1/2 tsp oregano
-- 1/4 tsp asge 
+- 1/4 tsp sage 
 - 1/2 c (ish) parmesan 
