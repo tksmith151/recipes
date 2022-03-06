@@ -7,10 +7,11 @@
 - Half Napa Cabage
 - 1 Bunch Green Onion Chopped
 - 1 egg
+- 1/2 t garlic powder
 - 1 t white pepper
 - 1 t ginger
 - 2 T. sesame oil
-- 1 T. soy sauce
+- 2 T. soy sauce
 - 3 T. oyster sauce
 
 # Mixing
